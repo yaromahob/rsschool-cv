@@ -23,7 +23,8 @@ telegram:  @yaromahob
 * CSS
 
 ## Work experience:
-* Will be soon
+* 2007-2014 Worked at a construction site as an electric and gas welder
+* 2014-Curret time: Working in a fishing, wholesale company as a commercial agent
 
 ## Education:
 * The **R**olling **S**copes **S**chool stage 0
